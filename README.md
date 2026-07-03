@@ -1,2 +1,2 @@
 # AVI.ai
-only edution donot miss uses
+only education perpose donot miss uses
